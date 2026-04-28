@@ -1,0 +1,2 @@
+# CBSE-Class-X-PYQ-Directory
+BECAUSE CBSE SITE SUCKS
